@@ -1,1 +1,1 @@
-# living-room-decor-fireplace
+# best-living-room-decor-fireplace-inspo
